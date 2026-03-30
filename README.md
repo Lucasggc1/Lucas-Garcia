@@ -1,1 +1,1 @@
-# Lucas-Garcia
+Sou Lucas Gongora Garcia Cid, tenho 18 anos e sou estudante da área de Engenharia de Software. Atualmente estou focado nos estudos e no desenvolvimento de conhecimentos na área de tecnologia. Tenho grande interesse em aprender continuamente, sendo o estudo uma das minhas principais atividades no dia a dia.
